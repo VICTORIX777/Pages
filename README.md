@@ -6,4 +6,4 @@
     Тел: 89854697899
     Почта: mostai1985@gmail.com
 
-  ![foto](/Downloads/week315.jpg)  
+   
